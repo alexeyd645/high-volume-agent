@@ -1,4 +1,4 @@
-Please add me as a Agent Developer [Published] on Discord, my username is alexeyd.
+Please add me as a Agent Developer [Published] on Discord, my username is alexeyd#4663.
 # High Volume Agent
 
 ## Description
